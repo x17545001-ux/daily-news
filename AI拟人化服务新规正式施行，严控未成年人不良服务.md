@@ -1,0 +1,248 @@
+# 每日资讯速览
+
+**主题：AI拟人化服务新规正式施行，严控未成年人不良服务**
+
+*2026年7月17日 12时34分56秒*
+
+---
+
+## 今日话题
+
+7月15日，《人工智能拟人化互动服务管理暂行办法》正式落地施行，成为国内首部规范AI拟人化服务的专项新规，全方位整治AI虚拟互动乱象、守护用户权益与青少年身心健康。新规明确划定AI拟人化服务红线，严禁平台将替代人类社会交往、操控用户心理、诱导用户沉迷依赖作为服务目标，严格禁止向未成年人提供虚拟恋爱、虚拟亲密陪伴等不良AI服务。同时要求所有AI拟人化产品必须明确标识机器属性，不得刻意伪装成真人误导用户，平台需建立内容审核、行为管控、风险预警全流程机制。针对AI话术诱导、虚假互动、隐私窃取等问题，新规压实平台主体责任，建立违规处罚、限期整改、动态监管机制。新规落地有效规范生成式AI民用服务秩序，平衡AI创新发展与安全监管，推动拟人化AI服务合规化、健康化、规范化发展。
+
+---
+
+## 资源清单
+
+**1. 熟练的手指**
+> 来源：<https://www.yylgj.com/az/9151.html><br>
+**2. 拯救花果山**
+> 来源：<https://www.yylgj.com/az/9152.html><br>
+**3. 钢魂**
+> 来源：<https://www.yylgj.com/az/9153.html><br>
+**4. 被弄湿的夏天纸巾盒**
+> 来源：<https://www.yylgj.com/az/9154.html><br>
+**5. 每天起床要抱紧我**
+> 来源：<https://www.yylgj.com/az/9155.html><br>
+**6. 猜猜它是谁**
+> 来源：<https://www.yylgj.com/az/9156.html><br>
+**7. 填海我贼溜**
+> 来源：<https://www.yylgj.com/az/9157.html><br>
+**8. 掘地求升大猩猩版**
+> 来源：<https://www.yylgj.com/az/9158.html><br>
+**9. 莱拉公主美容学院**
+> 来源：<https://www.yylgj.com/az/9159.html><br>
+**10. 旗子防御战**
+> 来源：<https://www.yylgj.com/az/9160.html><br>
+---
+
+**11. 来切我丫**
+> 来源：<https://www.yylgj.com/az/9161.html><br>
+**12. 当闪电行者拿起冠军之剑**
+> 来源：<https://www.yylgj.com/az/9162.html><br>
+**13. 重建社区**
+> 来源：<https://www.yylgj.com/az/9163.html><br>
+**14. 帮老妹儿通关**
+> 来源：<https://www.yylgj.com/az/9164.html><br>
+**15. 密室剧本杀**
+> 来源：<https://www.yylgj.com/az/9165.html><br>
+**16. 黄金之墓地牢迷宫**
+> 来源：<https://www.yylgj.com/az/9166.html><br>
+**17. 武林后传**
+> 来源：<https://www.yylgj.com/az/9167.html><br>
+**18. 小兵跟我冲**
+> 来源：<https://www.yylgj.com/az/9168.html><br>
+**19. 冰淇淋甜品铺**
+> 来源：<https://www.yylgj.com/az/9169.html><br>
+**20. 开心刷刷消方块红包版**
+> 来源：<https://www.yylgj.com/az/9170.html><br>
+---
+
+**21. 王牌英雄冲冲冲**
+> 来源：<https://www.yylgj.com/az/9171.html><br>
+**22. lost in play中文版**
+> 来源：<https://www.yylgj.com/az/9172.html><br>
+**23. 迷你生活商店小镇中文版**
+> 来源：<https://www.yylgj.com/az/9173.html><br>
+**24. 在我们之间狼人杀**
+> 来源：<https://www.yylgj.com/az/9174.html><br>
+**25. 爆金战机红包版**
+> 来源：<https://www.yylgj.com/az/9175.html><br>
+**26. 神奇小木工红包版**
+> 来源：<https://www.yylgj.com/az/9176.html><br>
+**27. 给点颜色瞧瞧**
+> 来源：<https://www.yylgj.com/az/9177.html><br>
+**28. 掌门求带飞**
+> 来源：<https://www.yylgj.com/az/9178.html><br>
+**29. 雪地雪球作战**
+> 来源：<https://www.yylgj.com/az/9179.html><br>
+**30. 火柴人小鲜肉逃亡中文版**
+> 来源：<https://www.yylgj.com/az/9180.html><br>
+---
+
+**31. 九州云霄录**
+> 来源：<https://www.yylgj.com/az/9181.html><br>
+**32. 重力球**
+> 来源：<https://www.yylgj.com/az/9182.html><br>
+**33. 球球一跳到底**
+> 来源：<https://www.yylgj.com/az/9183.html><br>
+**34. 火柴人不能死**
+> 来源：<https://www.yylgj.com/az/9184.html><br>
+**35. 奶牛精英特工**
+> 来源：<https://www.yylgj.com/az/9185.html><br>
+**36. 箱庭小偶模拟器**
+> 来源：<https://www.yylgj.com/az/9186.html><br>
+**37. 城市奇兵**
+> 来源：<https://www.yylgj.com/az/9187.html><br>
+**38. 超级酒店大亨中文版**
+> 来源：<https://www.yylgj.com/az/9188.html><br>
+**39. 来捏个宇宙**
+> 来源：<https://www.yylgj.com/az/9189.html><br>
+**40. 飞向银河系**
+> 来源：<https://www.yylgj.com/az/9190.html><br>
+---
+
+**41. 魔剑与勇者**
+> 来源：<https://www.yylgj.com/az/9191.html><br>
+**42. 跑跑停停**
+> 来源：<https://www.yylgj.com/az/9192.html><br>
+**43. 天天成语 红包版**
+> 来源：<https://www.yylgj.com/az/9193.html><br>
+**44. 迷你小镇家庭屋免费**
+> 来源：<https://www.yylgj.com/az/9194.html><br>
+**45. 天天萌熊水果消 红包版**
+> 来源：<https://www.yylgj.com/az/9195.html><br>
+**46. 脑力高手**
+> 来源：<https://www.yylgj.com/az/9196.html><br>
+**47. 火柴人除夕夜**
+> 来源：<https://www.yylgj.com/az/9197.html><br>
+**48. 福尼逗恶龙**
+> 来源：<https://www.yylgj.com/az/9198.html><br>
+**49. 木筏大作战**
+> 来源：<https://www.yylgj.com/az/9199.html><br>
+**50. 开矿当老板**
+> 来源：<https://www.yylgj.com/az/9200.html><br>
+---
+
+**51. 节奏的钢琴白块**
+> 来源：<https://www.yylgj.com/az/9201.html><br>
+**52. 节奏盒子sprunki第八阶段**
+> 来源：<https://www.yylgj.com/az/9202.html><br>
+**53. 智商挑战赛**
+> 来源：<https://www.yylgj.com/az/9203.html><br>
+**54. 海滨消消乐红包版**
+> 来源：<https://www.yylgj.com/az/9204.html><br>
+**55. 贪吃金豆人**
+> 来源：<https://www.yylgj.com/az/9205.html><br>
+**56. 厨师餐厅美食烹饪**
+> 来源：<https://www.yylgj.com/az/9206.html><br>
+**57. 勇闯女巫塔中文版**
+> 来源：<https://www.yylgj.com/az/9207.html><br>
+**58. 恐怖老师正版**
+> 来源：<https://www.yylgj.com/az/9208.html><br>
+**59. 太空狼人杀模拟器**
+> 来源：<https://www.yylgj.com/az/9209.html><br>
+**60. 社交游戏梦物语最新版**
+> 来源：<https://www.yylgj.com/az/9210.html><br>
+---
+
+**61. 城市大决战**
+> 来源：<https://www.yylgj.com/az/9211.html><br>
+**62. 拉针解谜**
+> 来源：<https://www.yylgj.com/az/9212.html><br>
+**63. 爆金连连消**
+> 来源：<https://www.yylgj.com/az/9213.html><br>
+**64. 我的院长生活**
+> 来源：<https://www.yylgj.com/az/9214.html><br>
+**65. 病娇女孩模拟器**
+> 来源：<https://www.yylgj.com/az/9215.html><br>
+**66. 征战阿拉德**
+> 来源：<https://www.yylgj.com/az/9216.html><br>
+**67. 米塔Miside测试版**
+> 来源：<https://www.yylgj.com/az/9217.html><br>
+**68. 轻松水族馆正版**
+> 来源：<https://www.yylgj.com/az/9218.html><br>
+**69. 魔御STARDIVE韩服**
+> 来源：<https://www.yylgj.com/az/9219.html><br>
+**70. 病娇诊断中文版**
+> 来源：<https://www.yylgj.com/az/9220.html><br>
+---
+
+**71. 阿瑞斯之忆桃子汉化组移植**
+> 来源：<https://www.yylgj.com/az/9221.html><br>
+**72. 迷你Dayz仓鼠版**
+> 来源：<https://www.yylgj.com/az/9222.html><br>
+**73. 掘地求升正版**
+> 来源：<https://www.yylgj.com/az/9223.html><br>
+**74. 巴士城市之旅汉化版**
+> 来源：<https://www.yylgj.com/az/9224.html><br>
+**75. 芙蕾雅的药水工坊**
+> 来源：<https://www.yylgj.com/az/9225.html><br>
+**76. 农场之地**
+> 来源：<https://www.yylgj.com/az/9226.html><br>
+**77. 多普莱斯世界**
+> 来源：<https://www.yylgj.com/az/9227.html><br>
+**78. 超级水管工3**
+> 来源：<https://www.yylgj.com/az/9228.html><br>
+**79. 结合男子日服**
+> 来源：<https://www.yylgj.com/az/9229.html><br>
+**80. 危险战争**
+> 来源：<https://www.yylgj.com/az/9230.html><br>
+---
+
+**81. 动漫校园约会模拟器中文版**
+> 来源：<https://www.yylgj.com/az/9231.html><br>
+**82. 我的青春恋爱物语果然有问题**
+> 来源：<https://www.yylgj.com/az/9232.html><br>
+**83. Lost Sword**
+> 来源：<https://www.yylgj.com/az/9233.html><br>
+**84. 飞机大厨正版**
+> 来源：<https://www.yylgj.com/az/9234.html><br>
+**85. 少女前线云图计划国际服**
+> 来源：<https://www.yylgj.com/az/9235.html><br>
+**86. 永恒之塔2**
+> 来源：<https://www.yylgj.com/az/9236.html><br>
+**87. 约会大作战恋爱极限突破**
+> 来源：<https://www.yylgj.com/az/9237.html><br>
+**88. 沼泽激战2中文版**
+> 来源：<https://www.yylgj.com/az/9238.html><br>
+**89. 小花仙拉贝尔之约**
+> 来源：<https://www.yylgj.com/az/9239.html><br>
+**90. 严峻任务**
+> 来源：<https://www.yylgj.com/az/9240.html><br>
+---
+
+**91. 逃离后室游戏**
+> 来源：<https://www.yylgj.com/az/9241.html><br>
+**92. 魔法村物语**
+> 来源：<https://www.yylgj.com/az/9242.html><br>
+**93. beastbeat手机版**
+> 来源：<https://www.yylgj.com/az/9243.html><br>
+**94. 飘香面包店**
+> 来源：<https://www.yylgj.com/az/9244.html><br>
+**95. 角落萌宠游戏**
+> 来源：<https://www.yylgj.com/az/9245.html><br>
+**96. 爱丽丝与彼岸游戏**
+> 来源：<https://www.yylgj.com/az/9246.html><br>
+**97. 创骑sim中文版**
+> 来源：<https://www.yylgj.com/az/9247.html><br>
+**98. 催眠复仇者汉化版**
+> 来源：<https://www.yylgj.com/az/9248.html><br>
+**99. 拉力赛车3中文版**
+> 来源：<https://www.yylgj.com/az/9249.html><br>
+**100. 腾讯围棋**
+> 来源：<https://www.yylgj.com/az/9250.html><br>
+
+---
+
+**来源参考：**
+- [“成都青龙湖放生3000条蛇”不实.md](https://github.com/x17545001-ux/daily-news/blob/main/%E2%80%9C%E6%88%90%E9%83%BD%E9%9D%92%E9%BE%99%E6%B9%96%E6%94%BE%E7%94%9F3000%E6%9D%A1%E8%9B%87%E2%80%9D%E4%B8%8D%E5%AE%9E.md)
+- [四川小伙捡到苏卡达陆龟.md](https://github.com/x17545001-ux/daily-news/blob/main/%E5%9B%9B%E5%B7%9D%E5%B0%8F%E4%BC%99%E6%8D%A1%E5%88%B0%E8%8B%8F%E5%8D%A1%E8%BE%BE%E9%99%86%E9%BE%9F.md)
+- [20万一只猴为什么不去峨眉山抓.md](https://github.com/x17545001-ux/daily-news/blob/main/20%E4%B8%87%E4%B8%80%E5%8F%AA%E7%8C%B4%E4%B8%BA%E4%BB%80%E4%B9%88%E4%B8%8D%E5%8E%BB%E5%B3%A8%E7%9C%89%E5%B1%B1%E6%8A%93.md)
+- [字母哥正式亮相热火谈改穿7号原因.md](https://github.com/x17545001-ux/daily-news/blob/main/%E5%AD%97%E6%AF%8D%E5%93%A5%E6%AD%A3%E5%BC%8F%E4%BA%AE%E7%9B%B8%E7%83%AD%E7%81%AB%E8%B0%88%E6%94%B9%E7%A9%BF7%E5%8F%B7%E5%8E%9F%E5%9B%A0.md)
+- [暴雨夜袭成都道路开启看海模式.md](https://github.com/x17545001-ux/daily-news/blob/main/%E6%9A%B4%E9%9B%A8%E5%A4%9C%E8%A2%AD%E6%88%90%E9%83%BD%E9%81%93%E8%B7%AF%E5%BC%80%E5%90%AF%E7%9C%8B%E6%B5%B7%E6%A8%A1%E5%BC%8F.md)
+- [我说这俩队这么难踢原来是冠亚军.md](https://github.com/x17545001-ux/daily-news/blob/main/%E6%88%91%E8%AF%B4%E8%BF%99%E4%BF%A9%E9%98%9F%E8%BF%99%E4%B9%88%E9%9A%BE%E8%B8%A2%E5%8E%9F%E6%9D%A5%E6%98%AF%E5%86%A0%E4%BA%9A%E5%86%9B.md)
+- [气象台不敢报40℃？权威回应.md](https://github.com/x17545001-ux/daily-news/blob/main/%E6%B0%94%E8%B1%A1%E5%8F%B0%E4%B8%8D%E6%95%A2%E6%8A%A540%E2%84%83%EF%BC%9F%E6%9D%83%E5%A8%81%E5%9B%9E%E5%BA%94.md)
+- [把老百姓关切的事一件一件办好.md](https://github.com/x17545001-ux/daily-news/blob/main/%E6%8A%8A%E8%80%81%E7%99%BE%E5%A7%93%E5%85%B3%E5%88%87%E7%9A%84%E4%BA%8B%E4%B8%80%E4%BB%B6%E4%B8%80%E4%BB%B6%E5%8A%9E%E5%A5%BD.md)
+- [38岁马龙参赛只因为儿子想看.md](https://github.com/x17545001-ux/daily-news/blob/main/38%E5%B2%81%E9%A9%AC%E9%BE%99%E5%8F%82%E8%B5%9B%E5%8F%AA%E5%9B%A0%E4%B8%BA%E5%84%BF%E5%AD%90%E6%83%B3%E7%9C%8B.md)
+- [沈音一对教授夫妻同日遇难.md](https://github.com/x17545001-ux/daily-news/blob/main/%E6%B2%88%E9%9F%B3%E4%B8%80%E5%AF%B9%E6%95%99%E6%8E%88%E5%A4%AB%E5%A6%BB%E5%90%8C%E6%97%A5%E9%81%87%E9%9A%BE.md)
